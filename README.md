@@ -1,2 +1,0 @@
-# Ashifplazz-
-DOWNLOAD FOR HERE
